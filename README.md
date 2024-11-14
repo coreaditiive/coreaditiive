@@ -1,4 +1,4 @@
- yall im @coreaditiive nice to meet you 
+ yall im @coreaditiive nice to meet you  ,
  weak independent woman ik 
 
 coreaditiive/coreaditiive is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
